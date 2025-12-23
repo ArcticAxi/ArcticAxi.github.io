@@ -12,5 +12,5 @@ yet I wait
 for the sun to set
 so I can see you
 if just for a minute
-and make myself belief
+and make myself believe
 that none of this is real
